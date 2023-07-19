@@ -4,4 +4,4 @@
 4. Añadir la salsa a la masa
 5. Anadir la carne a la la base
 6. Hornear 30 min
-7. Sacar del horno
+7. Sacar la pizza del horno
